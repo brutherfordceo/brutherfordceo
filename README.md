@@ -9,4 +9,4 @@
 <img width="2048" height="70" alt="4863" src="https://github.com/user-attachments/assets/6ef5349d-4781-4f41-83c0-a6ff44f335ad" />
 
 ![4861](https://github.com/user-attachments/assets/33a149ba-2fad-4c1a-b2b6-aa42817e0b5a)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**☆ • Kris | They / He | Sign Straw ok • ☆}}$**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**☆ • Kris | They / He | Sign Straw ok • ☆**
